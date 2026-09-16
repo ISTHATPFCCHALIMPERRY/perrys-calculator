@@ -1,2 +1,6 @@
 # perrys-calculator
-designed for 3/1 group owned by GMAN_Patriot on roblox uhh its just a calculator for mortars on a triangle height+base type shi idk
+its literally made for garrets group on 3/1 marines on ROBLOX out of all games gng 🤣🤣✌️✌️
+
+anways my calculators tuff ive used it on ROBLOX LARPING games and it lowk works so yeah instructions have NOT been given as its only for the group im in lowk 
+
+MORTARMEN 4LIFE 😂😂😂🤣🤣✌️✌️☠️☠️☠️
