@@ -1,6 +1,3 @@
-# perrys-calculator
-its literally made for garrets group on 3/1 marines on ROBLOX out of all games gng 🤣🤣✌️✌️
+# setup
 
-anways my calculators tuff ive used it on ROBLOX LARPING games and it lowk works so yeah instructions have NOT been given as its only for the group im in lowk 
-
-MORTARMEN 4LIFE 😂😂😂🤣🤣✌️✌️☠️☠️☠️
+download the exe run it then check your downloads the aura sigma ball calculator will be there
